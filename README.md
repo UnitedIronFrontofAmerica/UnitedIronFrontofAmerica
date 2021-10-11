@@ -1,5 +1,5 @@
-- 👋 Hi, We Are The @UnitedIronFrontofAmerica
+- 👋 Hi, We Are The Black Power Party for Revolutionary Action
 - 👀 Our goal is to create a medium for the People of Atlanta to contribute to the Cop Watch movement
 - 🌱 We're currently learning Android App Development
 - 💞️ We're looking for other developers to assist with building our app for launch
-- 📫 Reach us here --> littlebrother.uifa@gmail.com
+- 📫 Reach us here --> bpp.ra@protonmail.com
